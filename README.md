@@ -1,2 +1,1 @@
-# curso
-prueba 
+te amo mi vida
